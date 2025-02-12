@@ -1,4 +1,4 @@
-# Is Earth's Magnetosphere Under Threat? How to prepare for magnetic pole shifts and flips!
+# Is Earth's Magnetosphere Under Threat? How to Prepare for Geomagnetic Reversal!
 
 Watch the video on YouTube: https://www.youtube.com/watch?v=b5kc0ry6YjA
 
